@@ -1,1 +1,1 @@
-bebas
+ini merupakan sebuah percobaan, jangan takut mencoba
